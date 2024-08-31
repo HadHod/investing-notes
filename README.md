@@ -24,6 +24,10 @@
 
 ![image](https://github.com/user-attachments/assets/5496c0ec-1fef-4bdd-828e-e1138c103713)
 
+## ROIIC
+
+![image](https://github.com/user-attachments/assets/8c73ece5-16e2-4b94-bcd6-5426a5920d5e)
+
 
 ## COGS / OPEX
 
